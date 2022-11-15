@@ -20,7 +20,7 @@ The ever changing Covid-19 restrictions brings about inconvenience to us on a da
 <b> Credits: </b><br>
 1. Charlene Teo <br>
 2. Wu LiXiang <br>
-3. Nicole Lim <br>
+3. Nicole Lim Jia Yi<br>
 4. Eaint Thiri Khit <br>
 5. Jing Yuan <br>
 
